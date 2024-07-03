@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **achmad091102@gmail.com**
 
-- ⚡ Fun fact **hehehehehe :V**
+- ⚡ Fun fact **A Engineering Student**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
